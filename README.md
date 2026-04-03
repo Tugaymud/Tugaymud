@@ -7,7 +7,7 @@ I really LOOVEEE writing, drawing and reading. I LOVEEE novels especially myster
 
 ![Alt text](https://i.pinimg.com/736x/07/e9/41/07e94165b1915cac33711c90ab4fcdb1.jpg)
 
-My fandoms: Link Click, TADC, Starters, GI, Epic the Musical, Alien Stage, CRK,all of racheldrawsthis' games, DnB, Chiikawa, BS, PPT, Madoka Magica,
+My fandoms: Link Click, TADC, Starters, GI, Epic the Musical, Alien Stage, CRK,all of racheldrawsthis' games, DnB, Chiikawa, BS, PPT, Madoka Magica...
 
 ![Alt text](https://i.pinimg.com/1200x/bf/a1/fd/bfa1fdbe501fd44834bc942891d6015a.jpg)
 
