@@ -1,7 +1,7 @@
 EAEHFKAHE
 ![Alt text](https://i.pinimg.com/736x/e4/b5/e7/e4b5e7497a754d48bea6c8e77ceeb292.jpg) 
 
-Hiiii i'll just keep it short,, I'm 15, ESTP, trans boy, cupioromantic. I'm also intelligent and very observant.
+Hiiii i'll just keep it short,, I'm 15, ESTP, trans boy, cupioromantic, PROBABLY SAPIOSEXUAL. I'm also intelligent and very observant.
 
 I really LOOVEEE writing, drawing and reading. I LOVEEE novels especially mystery ^^. I can't live without books..
 
