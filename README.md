@@ -15,5 +15,6 @@ My fandoms: Link Click, TADC, Starters, GI, Epic the Musical, Alien Stage, CRK,a
 
  DNI DNI DNI: Problematic people like pdf files, proshitters etc, people who are 11 and younger, if i have dniuc do NOT interract w me unless if you're going to say something about my cosplay. I can be very overwhelmed sometimes so i don't wanna be rude to anyone ^^"
 
+![Alt text](https://tenor.com/p9sIrLF0w6Y.gif)
 
 ૮ • ﻌ - ა
