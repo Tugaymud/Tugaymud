@@ -13,7 +13,8 @@ My fandoms: Link Click, TADC, Starters, GI, Epic the Musical, Alien Stage, CRK, 
 
 ![Alt text](https://i.pinimg.com/1200x/bf/a1/fd/bfa1fdbe501fd44834bc942891d6015a.jpg)
 
- DNI DNI DNI: Problematic people like pdf files, proshitters etc, people who are 11 and younger and people who are so annoying(if you're a close friend of mine then it's okay!). If i have dniuc in my name do NOT interract with me unless if you're going to say something about my cosplay or you're a close friend of mine. I can be very overwhelmed sometimes so i don't wanna be rude to anyone.^^"
+ DNI DNI DNI: Problematic people like pdf files, proshitters etc, people who are 11 and younger and people who are so annoying(if you're a close friend of mine then it's okay!).
+If i have dniuc in my name do NOT interract with me unless if you're going to say something about my cosplay or you're a close friend of mine. I can be very overwhelmed sometimes so i don't wanna be rude to anyone.^^"
 
 ![Alt text](https://i.pinimg.com/originals/6b/5f/96/6b5f964909d714a9b6acd843cd32ad44.gif)
 
