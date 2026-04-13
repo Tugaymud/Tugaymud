@@ -3,7 +3,7 @@ EAEHFKAHE
 
 Hiiii i'll just keep it short,, I'm ESTP, trans boy, cupioromantic, PROBABLY SAPIOSEXUAL. I'm also intelligent and very observant.
 
-My BESTBESTBEST friends: A,Y,V
+My BESTBESTBEST friends: A,Y,V,S
 
 I really LOOVEEE writing, drawing and reading. I LOVEEE novels especially mystery ^^. I can't live without books..
 
