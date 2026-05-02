@@ -9,7 +9,7 @@ I really LOOVEEE writing, drawing and reading. I LOVEEE novels especially myster
 
 I also love people who are smart. I always found intelligence attractive!
 
-![Alt text](https://i.pinimg.com/736x/07/e9/41/07e94165b1915cac33711c90ab4fcdb1.jpg)
+![Alt text](https://i.pinimg.com/736x/67/b0/2f/67b02f5529aaf560abcdb4896e0ac4e1.jpg)
 
 My fandoms: Link Click, TADC, Starters, JJK, GI, Epic the Musical, Alien Stage, CRK, all of racheldrawsthis' games, DnB, Chiikawa, BS, PPT, Madoka Magica...
 
