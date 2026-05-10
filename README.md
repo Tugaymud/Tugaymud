@@ -1,7 +1,7 @@
 EAEHFKAHE
 ![Alt text](https://i.pinimg.com/736x/e4/b5/e7/e4b5e7497a754d48bea6c8e77ceeb292.jpg) 
 
-Hiiii i'll just keep it short,, I'm ESTP, trans boy and sapiosexual. I'm also intelligent and very observant.
+Hiiii i'll just keep it short,, I'm ESTP, trans boy. I'm also intelligent and very observant.
 
 My BESTBESTBEST friends: A,Y,V,S
 
