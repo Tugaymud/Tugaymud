@@ -5,9 +5,7 @@ I'm just an observant boy
 
 My BESTBESTBEST friends: A,Y,V,S
 
-I really LOOVEEE writing, drawing and reading. I LOVEEE novels especially mystery ^^. I can't live without books..
-
-I also love people who are smart. I always found intelligence attractive
+I really LOOVEEE writing, drawing and reading. I LOVEEE novels especially mystery. I can't live without books..
 
 ![Alt text](https://i.pinimg.com/736x/67/b0/2f/67b02f5529aaf560abcdb4896e0ac4e1.jpg)
 
