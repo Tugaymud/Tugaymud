@@ -1,4 +1,4 @@
-I'm just a nonbinary bro 
+I'm just a nonbinary, bro 
 
 My BESTBESTBEST friends: A,Y,V,S,D
 
