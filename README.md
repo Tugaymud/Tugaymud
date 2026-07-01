@@ -1,4 +1,4 @@
-I'm just a nonbinary, bro 
+I'm just a nonbinary, bro. I can go by any pronounces except she/her.
 
 My BESTBESTBEST friends: A,Y,V,S,D
 
