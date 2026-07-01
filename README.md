@@ -1,13 +1,12 @@
+I'm just a nonbinary bro 
 
-I'm just a nonbinary 
+My BESTBESTBEST friends: A,Y,V,S,D
 
-My BESTBESTBEST friends: A,Y,V,S
-
-I really LOOVEEE writing, drawing and reading. I LOVEEE novels especially mystery. I can't live without books..
+I really LOVEE writing, drawing and reading. I LOVEEE mystery type of novels.
 
 ![Alt text](https://i.pinimg.com/736x/67/b0/2f/67b02f5529aaf560abcdb4896e0ac4e1.jpg)
 
-My fandoms: Link Click, Starters, JJK, GI, Epic the Musical, Alien Stage, CRK, all of racheldrawsthis' games, DnB, Chiikawa, BS, PPT, Madoka Magica...
+My fandoms: Link Click, Starters, JJK, GI, Epic the Musical, Alien Stage, CRK, all of racheldrawsthis' games, DnB, Chiikawa, BS, PPT, Madoka Magica, SFAWTDE, Resident Evil...
 
 ![Alt text](https://i.pinimg.com/1200x/bf/a1/fd/bfa1fdbe501fd44834bc942891d6015a.jpg)
 
