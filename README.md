@@ -4,7 +4,7 @@ My BESTBESTBEST friends: A,Y,V,S,D
 
 I really LOVEE writing, drawing and reading. I LOVEEE mystery type of novels.
 
-![Alt text](https://i.pinimg.com/736x/67/b0/2f/67b02f5529aaf560abcdb4896e0ac4e1.jpg)
+![Alt text](https://i.pinimg.com/736x/47/37/ce/4737ce042a2fad94f4ff340bc5e62ef6.jpg)
 
 My fandoms: Link Click, Starters, JJK, GI, Epic the Musical, Alien Stage, CRK, all of racheldrawsthis' games, DnB, Chiikawa, BS, PPT, Madoka Magica, SFAWTDE, Resident Evil...
 
